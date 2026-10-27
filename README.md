@@ -5,3 +5,8 @@ Metro Launcher is a simple launcher project designed to make installing and sett
 Download it from this link
 
  https://drive.google.com/file/d/10Xu1D6bjhYRdg00pg_aw2dE-CmT3KMWA/view?usp=sharing
+
+
+Discord 
+
+https://discord.gg/ZDMq4XW5dr
