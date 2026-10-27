@@ -9,4 +9,4 @@ Download it from this link
 
 Discord 
 
-https://discord.gg/ZDMq4XW5dr
+https://discord.gg/kDgveKavS6
